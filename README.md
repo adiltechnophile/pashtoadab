@@ -1,0 +1,2 @@
+# pashtoadab
+Pashto Adabi lekany
